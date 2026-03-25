@@ -1,1 +1,0 @@
-# QuickLinks-App-Privacy-Policy
